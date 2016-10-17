@@ -2,4 +2,4 @@
 Repository 
 
 Hello! 
-I'm a graphic designer venturing into new and exciting directions.
+I'm a graphic designer who loves to learn new things.
